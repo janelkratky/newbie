@@ -1,0 +1,2 @@
+# newbie
+digging in
